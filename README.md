@@ -1,1 +1,1 @@
-https://arciris.org/ aims to continue on Arciris chain.
+https://arciris.info/ aims to continue on Arciris chain.
